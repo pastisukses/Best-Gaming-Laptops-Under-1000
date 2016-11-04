@@ -44,5 +44,7 @@ Third, MSI GE62 Apache Pro 004, this one is well-worth mentioning when it comes 
 <div style="text-align: justify;">
 If portability is your main concern when you look for best gaming laptops under 1500 2016, Alienware 13 is for you. Compared to the abovementioned option, this one is lighter. Even so, you better not to take this lightly. Designed with GTX 860M graphic card and 16GB for its RAM, Alienware 13 caters gamers with solid performance. </div>
 <div style="text-align: justify;">
-So, Which laptop to choose? The truth is,&nbsp; you can choose any option that is mentioned above. Think about how much budget that you have and what your expectation toward the chosen gaming laptop. In case that you want to play the game with bigger screen, then Asus ROG is a win.</div>
+So, Which laptop to choose? The truth is,&nbsp; you can choose any option that is mentioned above. Think about how much budget that you have and what your expectation toward the chosen gaming laptop. In case that you want to play the game with bigger screen, then Asus ROG is a win.<br>
+<a href="https://www.behance.net/gallery/44733747/Top-10-Best-Gaming-Laptops-Under-1000-Dollars">Click here to see Top 10 Best Gaming Laptops under 1000 dollars in 2016</a>
+</div>
 
