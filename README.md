@@ -41,8 +41,8 @@ laptop beside of its sleek design is the high definition display.</span></div>
 </div>
 <div style="margin: 0px; text-align: justify; text-justify: inter-ideograph;">
 <span style="background: white; color: #222222; font-family: &quot;Arial&quot;,&quot;sans-serif&quot;; font-size: 10pt; margin: 0px;">Acer Predator gives you 1920 by 1080p, which means crystal
-clear image that you barely get from a standard laptop. Core i7-6700HQ along
-with 1TB hard drive, you will appreciate this gaming laptop.Second, it is Asus
+clear image that you barely get from a standard laptop, Core i7-6700HQ along
+with 1TB hard drive. The Second, it is Asus
 ROG G752VL-DH71 for</span><span style="background: white; color: blue; font-family: &quot;Arial&quot;,&quot;sans-serif&quot;; font-size: 10pt; margin: 0px;"> best&nbsp;budget gaming laptops under 1000 2016</span><span style="background: white; color: #222222; font-family: &quot;Arial&quot;,&quot;sans-serif&quot;; font-size: 10pt; margin: 0px;"> as the gaming laptop costs you only $1,469.02. Integrated
 with Core i7 processor and Nvidia GTX 965M, this one caters you with excellent
 graphic. The fact that the size of the display is 17 inch and the resolution
