@@ -26,7 +26,7 @@ nevertheless, these are </span><span style="background: white; color: blue; font
 <div style="text-align: justify;">
 <br /></div>
 <div style="text-align: justify;">
-You can play your favorite game even with standard laptop, even so for a kind of heavy game, standard laptop is not powerful enough. Gaming laptop is the best alternative, as it is not only portable, but also powerful to handle a heavy game. Sadly, laptop for gaming isn’t cheap. Nevertheless, if you look further, some laptop manufactures offer some products within your reach, nevertheless, <b><a href="http://rajalaptop.com/gaming-notebooks/">these are best gaming laptops under 1000 2016 with top notch performance</a></b>.<br />
+You can play your favorite game even with standard laptop, even so for a kind of heavy game, standard laptop is not powerful enough. Gaming laptop is the best alternative, as it is not only portable, but also powerful to handle a heavy game. Sadly, laptop for gaming isn’t cheap. Nevertheless, if you look further, some laptop manufactures offer some great products within your reach. Nevertheless, as revealed in <a href="http://rajalaptop.com/gaming-laptops/">this website</a> <b>these are best gaming laptops under 1000 2016 with top notch performance</b>.<br />
 <div class="separator" style="clear: both; text-align: center;">
 <a href="http://4.bp.blogspot.com/-PLCMWUQKO3g/VrGNWXcBSNI/AAAAAAAAAAo/eSThCrIOdHE/s1600/ASUS%2BROG%2BGL752VW-DH74.jpg" imageanchor="1" style="margin-left: 1em; margin-right: 1em;"><img border="0" src="http://4.bp.blogspot.com/-PLCMWUQKO3g/VrGNWXcBSNI/AAAAAAAAAAo/eSThCrIOdHE/s1600/ASUS%2BROG%2BGL752VW-DH74.jpg" /></a></div>
 <br /></div>
